@@ -2,7 +2,7 @@
 
 -  Hi, I’m @TMQuan
 -  I’m interested in Web Design, Animation in PowerPoint as well as Design and Drawing in Illustrator and Photoshop
--  How to reach me: Twitter: @TMQuan2002, Discord: TMQuan#3861
+-  How to reach me: Twitter: @TMQuan2002, Discord: tmquan
 
 ---
 
